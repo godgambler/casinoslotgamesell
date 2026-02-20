@@ -38,4 +38,4 @@ This collection includes games from the following providers:
 
 If you're interested in purchasing these games or require more information, feel free to reach out to us.
 
-**Telegram Contact**: [@betvio777](https://t.me/gamblingadmin) (Admin)
+**Telegram Contact**: [@gamblingadmin](https://t.me/gamblingadmin) (Admin)
